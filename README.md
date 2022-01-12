@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Tsurumi-Rengoku
+- 👀 I’m a tea fanatic
+- 🌱 I love Warriors and Kimetsu no Yaiba
+- 💞️ I'm Kyojuro's wife
+- 📫 My discord is Tsurumi Rengoku #7477 (I'll add you if I know you well enough)
+- Feathertail Supremacy 
+- I'm always hungry
+- Tsurumi-Rengoku/Tsuru is a ✨ special ✨ person because people say that :P
+- Ara Ara Sayonara
